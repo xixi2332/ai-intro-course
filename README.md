@@ -1,1 +1,0 @@
-# ai-intro-course
